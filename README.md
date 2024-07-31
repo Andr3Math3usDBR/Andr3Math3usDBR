@@ -1,12 +1,11 @@
-- 👋 Hi, I’m @Andr3Math3usDBR
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+-Olá, meu nome é André Matheus Ignácio 
+-eu sou autista
+-tenho 15 anos
+-estudo na Ana Franco 
+-nesse momento que estou escrevendo, estou fazendo aula na alura.
 
-<!---
-Andr3Math3usDBR/Andr3Math3usDBR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Você pode entrar em contato comigo, se quiser.
+
+Meu e-mail:
+matheusgameplay12348@gmail.com
+
