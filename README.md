@@ -9,5 +9,5 @@ Você pode entrar em contato comigo, se quiser.
 Meu e-mail:
 matheusgameplay12348@gmail.com
 
-![](https://tenor.com/pt-BR/view/luffy-gear-5-gif-7578377078938294016)
+![](https://media1.tenor.com/m/aSvNzSQUVwAAAAAC/luffy-gear-5.gif)
 
